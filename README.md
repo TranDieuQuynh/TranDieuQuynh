@@ -22,5 +22,6 @@
 🔗 **LinkedIn:** [Diệu Quỳnh Trần](https://www.linkedin.com/in/di%E1%BB%87u-qu%E1%BB%B3nh-tr%E1%BA%A7n-b65263351/)  
 🔗 **GitHub:** [trandieuquynh](https://github.com/trandieuquynh)  
 📧 **Email:** [trandieuquynh274@gmail.com](mailto:trandieuquynh274@gmail.com)  
+🔗 **Facebook:** [Trần Diệu Quỳnh](https://www.facebook.com/sarahkaylinnnn/?locale=vi_VN) 
 
 "Cybersecurity is not just my career path, it's my passion. Always learning, always growing. Let's connect and build a safer digital world together! 🚀🐱"
